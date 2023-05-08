@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **gwynflynn1412@gmail.com**
 
-- ⚡ Fun fact **I am funny hehehe**
+- ⚡ Fun fact **I once got lost in my own hometown and had to use Google Maps to find my way home.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
